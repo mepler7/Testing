@@ -1,1 +1,2 @@
 # Testing
+My name is Matt, im planning to launch full into the FinTech insudstry with a particular interest in Blockchain technology. I plan to stay at the forefront of technological evolutions and share the wealth of knowledge with my peers
